@@ -2,6 +2,8 @@
 Hello!
 *you can call me Testy/test.*
 
+*usually sitting in skins: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2*
+
 *he/him.*
 
 *ru / eng / ua.* 
