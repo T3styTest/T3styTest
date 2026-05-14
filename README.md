@@ -7,11 +7,15 @@ Hello!
 
 **he/him.**
 
+**plays pony town**
+
 **a lil bit big mutlifandomer**
 
 **ru / eng**
 
 **main server - Safe Russian #1.**
+
+**also you can see me on 18+ russian or safe #1**
 
 **usually c+h/int, but if I'm w/ my friends, dniuf.**
 
