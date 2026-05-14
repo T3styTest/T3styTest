@@ -1,17 +1,18 @@
 
 Hello!
-*you can call me Testy/test.*
 
-*usually sitting in skins: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2*
+**you can call me Testy/test.**
 
-*he/him.*
+**usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2**
 
-*a lil bit big mutlifandomer*
+**he/him.**
 
-*ru / eng / ua.* 
+**a lil bit big mutlifandomer**
 
-*main server - Safe Russian #1.* 
+**ru / eng**
 
-*usually c+h/int, but if I'm w/ my friends, dniuf.* 
+**main server - Safe Russian #1.**
+
+**usually c+h/int, but if I'm w/ my friends, dniuf.**
 
 <img width="259" height="194" alt="image" src="https://github.com/user-attachments/assets/e74ae7c0-090e-46e3-9e07-c90e843ead65" />
