@@ -3,7 +3,7 @@ Hello!
 
 **you can call me Testy/test.**
 
-**usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2**
+**usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2, Onar3677 and more**
 
 **he/him.**
 
