@@ -15,4 +15,6 @@ Hello!
 
 **c+h/int, but if I'm w/ my friends, dniuf.**
 
-<img width="259" height="194" alt="image" src="https://github.com/user-attachments/assets/e74ae7c0-090e-46e3-9e07-c90e843ead65" />
+**don't be scared to talk w/ me! I'm a sweet person!!**
+
+<img width="350" height="180" alt="image" src="https://github.com/user-attachments/assets/18ab34b7-a858-4789-8670-c93d10684ad8" />
