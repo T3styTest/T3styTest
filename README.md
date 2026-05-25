@@ -7,8 +7,6 @@ Hello!
 <p align="center">
 you can call me Testy/test.
 <p align="center">
-Usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2, Onar3677, ꕚ & other TBOTV characters, Gray/Argent(ifrgt how 2 spell it) and more!
-<p align="center">
 he/him prn pls.
 <p align="center">
 ru / eng
