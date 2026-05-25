@@ -1,39 +1,46 @@
+<p align="center">
+ <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/aee481e4-dbdc-41f0-8950-9b318add32a8" />
 
-Hello!
-
-**you can call me Testy/test.**
-
-**usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2, Onar3677, ꕚ & other TBOTV characters, Gray/Argent(ifrgt how 2 spell it) and more!**
-
-**he/him.**
-
-**plays pony town**
-
-**a lil bit big mutlifandomer**
-
-**ru / eng**
-
-**c+h/int, but if I'm w/ my friends, dniuf.**
-
-**don't be scared to talk w/ me! I'm a sweet person!!**
-
-<img width="550" height="35" alt="image" src="https://github.com/user-attachments/assets/e92adfab-00df-4a44-9b99-cb93cdfa3b74" />
 
 <p align="center">
+Hello!
+<p align="center">
+you can call me Testy/test.
+<p align="center">
+Usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2, Onar3677, ꕚ & other TBOTV characters, Gray/Argent(ifrgt how 2 spell it) and more!
+<p align="center">
+he/him prn pls.
+<p align="center">
+ru / eng
+<p align="center">
+c+h/int, but if I'm with my friends, dniuf.
+<p align="center">
+don't be scared to talk w/ me! I'm a sweet person!!
+<p align="center">
+<img width="550" height="35" alt="image" src="https://github.com/user-attachments/assets/e92adfab-00df-4a44-9b99-cb93cdfa3b74" />
+<p align="center">
 Ну здраствуй, друг! меня можно звать как тести, так и тест. Не спрашивайте почему такое имя XD. юмор не такой уж и русский, хотя я и не живу в других странах по типу Великой Британии или США. я не кусаюсь, поэтому если я сижу сам + не афк - подходите, я не против поговорить!
-
+<p align="center">
   новые друзья? хмм, не уверен, ведь я только вечером не буду сидеть с моим партнером. и он не очень любит сидеть с теми, с кем он не знаком. а он не очень любит находить новых обществ. если я вам не нравлюсь, скажите это, я не буду обзывать или обижаться, а правильно все пойму!
-
+<p align="center">
   от 17:00 к 22:00/23:00 я могу сидеть сам, поэтому не упусти шанс подойти ко мне! ведь в другое время я могу сидеть со своим партнером и другими друзьями. Не подходите/в лс, если я сижу с кем-то, кто есть моим другом.
-
+<p align="center">
   я хоть и не имею тг (этим летом скачаю), я все еще могу увидеть, что мой скин слили. поэтому, не копируйте скины пожалуйста, или не сливайте в тт, пинтерест, тгк и т.д. обзывание без причины, закрывание скина и прочее могут быть предом - хайд! мои скины всегда ориг.
-
+<p align="center">
   если хотите узнать фандом по моему скину, напишите либо в лс, либо подойдите (если не афк), и спросите у меня.
-
+<p align="center">
   знаюсь в фандомах как:
   МАЙКНАРФТ АРГ(SFAWTDE/DAWTDE. Collinlock16( in.process.watching ). TBOTV/TLPA. Judemines2006. Unstable Universe(abit of Lifesteal SMP). A ReGect. дело _Def1ne, Am I Alone?);
 остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm(?), Vocaloid, Sprunki, Solarballs, Countryhumans(?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), иии... ох, забыл, извините XD
 </p>
+<p align="center">
+<img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
 
 
-<img width="350" height="180" alt="image" src="https://github.com/user-attachments/assets/18ab34b7-a858-4789-8670-c93d10684ad8" />
+<p align="center">
+ <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398" />
+
+<p align="center">
+ <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/88721af2-e8db-427b-9c80-50de54aabb41" />
+<p align="center">
+Очень обожаю АРГ TBOTV/TLPA, не обращайте внимания на мою зависимость, хотя я даже не понял 2 акт, лол.
