@@ -3,7 +3,7 @@ Hello!
 
 **you can call me Testy/test.**
 
-**usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2, Onar3677, ꕚ & other TBOTV characters and more**
+**usually playing as: Michaamazing2, Zabooboo3, Squiddo, 4cvit, ParrotX2, Onar3677, ꕚ & other TBOTV characters, Gray/Arjent(ifrgt how 2 spell it) and more!**
 
 **he/him.**
 
