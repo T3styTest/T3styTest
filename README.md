@@ -33,7 +33,9 @@ don't be scared to talk w/ me! I'm a sweet person!!
 
 <p align="center">
   знаюсь в фандомах как:
+ 
  MC ARG(SFAWTDE/DAWTDE. Collinlock16( in.process.watching ). TBOTV/TLPA. Judemines2006. Unstable Universe(abit of Lifesteal SMP). A ReGect. дело _Def1ne, Am I Alone?);
+ 
 остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm (?), Vocaloid, Sprunki, Solarballs, Countryhumans (?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken (?), иии... ох, забыл, извините XD
 </p>
 <p align="center">
