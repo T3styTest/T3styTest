@@ -2,7 +2,7 @@
  <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/aee481e4-dbdc-41f0-8950-9b318add32a8" />
 <div align="center">
   
-  # Welcome!
+  # _~Welcome!~_
 
 <p align="center">
 <img width="550" height="35" alt="image" src="https://github.com/user-attachments/assets/e92adfab-00df-4a44-9b99-cb93cdfa3b74" />
@@ -29,18 +29,21 @@ don't be scared to talk w/ me! I'm a sweet person!!
   я хоть и не имею тг (этим летом скачаю), я все еще могу увидеть, что мой скин слили. поэтому, не копируйте скины пожалуйста, или не сливайте в тт, пинтерест, тгк и т.д. обзывание без причины, закрывание скина своим или чатом и прочее могут быть предом - кофликт - хайд/блок.
 <p align="center">
   если хотите узнать фандом по моему скину, напишите либо в лс, либо подойдите (если не афк), и спросите у меня. Хотите туторы на такие скины, как у меня? не бойтесь, я не буду отказывать, просто попросите <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" />
- правильно <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" /> .
+ правильно <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" />.INT люди по моим фд !!! пожалуйста!
 
-<p align="center">
-  знаюсь в фандомах как:
+ **знаюсь в фандомах как:**
  
- MC ARG(SFAWTDE/DAWTDE. Collinlock16( in.process.watching ). TBOTV/TLPA. Judemines2006. Unstable Universe(abit of Lifesteal SMP). A ReGect. дело _Def1ne, Am I Alone?);
+ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC ARG(SFAWTDE/DAWTDE. Collinlock16( in.process.watching ). TBOTV/TLPA. Judemines2006. Unstable Universe(abit of Lifesteal SMP). A ReGect. дело _Def1ne, Am I Alone?);
  
-остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm (?), Vocaloid, Sprunki, Solarballs, Countryhumans (?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken (?), иии... ох, забыл, извините XD
+остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm (?), Vocaloid, Sprunki, Solarballs, Countryhumans (?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken (?), иии... ох, забыл, извините XD<img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
 </p>
 <p align="center">
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
-
- <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398" /> Очень обожаю АРГ TBOTV/TLPA, поэтому не обращайте внимания на мою зависимость, хотя я даже не понял 2 акт, лол. Хотя могу по памяти на самом деле пересказать его. INT люди по моим фд !!! пожалуйста!
+<p align="center">
+<img width="366" height="75" alt="image" src="https://github.com/user-attachments/assets/841906bc-e1f4-4117-9d9a-89a74dea86e6" />
+<p align="center">
+ <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398" /> 
+ <p align="center"> 
+ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" /> мне точно нужно пересмотреть 2 акт, а то совсем не понял, лол.<img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
 <p align="center">
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
