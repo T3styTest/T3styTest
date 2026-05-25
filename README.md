@@ -1,9 +1,11 @@
 <p align="center">
  <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/aee481e4-dbdc-41f0-8950-9b318add32a8" />
-
+<div align="center">
+  
+  # Welcome!
 
 <p align="center">
-Hello!
+<img width="550" height="35" alt="image" src="https://github.com/user-attachments/assets/e92adfab-00df-4a44-9b99-cb93cdfa3b74" />
 <p align="center">
 you can call me Testy/test.
 <p align="center">
@@ -15,7 +17,7 @@ c+h/int, but if I'm with my friends, dniuf.
 <p align="center">
 don't be scared to talk w/ me! I'm a sweet person!!
 <p align="center">
-<img width="550" height="35" alt="image" src="https://github.com/user-attachments/assets/e92adfab-00df-4a44-9b99-cb93cdfa3b74" />
+ <img width="344" height="40" alt="image" src="https://github.com/user-attachments/assets/22dfaf6d-bff0-4f79-bc00-a36a71946f9a" />
 <p align="center">
 Ну здраствуй, друг! меня можно звать как тести, так и тест. Не спрашивайте почему такое имя XD. юмор не такой уж и русский, хотя я и не живу в других странах по типу Великой Британии или США. я не кусаюсь, поэтому если я сижу сам + не афк - подходите, я не против поговорить!
 
