@@ -5,7 +5,8 @@
   # _~Welcome!~_
 
 <p align="center">
-<img width="550" height="35" alt="image" src="https://github.com/user-attachments/assets/e92adfab-00df-4a44-9b99-cb93cdfa3b74" />
+<img width="1200" height="170" alt="аааааааааааааааааааа" src="https://github.com/user-attachments/assets/3c749083-04d8-4c38-91a9-cecb44de0b9a" />
+
 <p align="center">
 you can call me Testy/test.
 <p align="center">
@@ -41,7 +42,6 @@ don't be scared to talk w/ me! I'm a sweet person!!
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
 <p align="center">
  <img width="1184" height="203" alt="image" src="https://github.com/user-attachments/assets/f3c5cca1-9a33-43dd-8dac-f8527fbf252e" />
-<p align="center">
  <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398" /> 
  <p align="center"> 
   <img width="656" height="356" alt="image" src="https://github.com/user-attachments/assets/6bd60946-a800-4dab-9da9-a34d25996141" />
