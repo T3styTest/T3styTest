@@ -30,7 +30,7 @@
  
  <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC: SFAWTDE/DAWTDE. Collinlock16( в процессе просмотра ). TBOTV/TLPA. Judemines2006(ужасы пустого сервера). Unstable Universe(немного Lifesteal SMP). A ReGect. дело _Def1ne, "Am I Alone?";
  
-остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm(?), Vocaloid, Sprunki, Solarballs, Countryhumans(?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken(?), иии... ох, забыл, извините XD<img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
+остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm(?), Vocaloid(?), Sprunki, Solarballs, Countryhumans(?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken(?), иии... ох, забыл, извините XD<img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
 </p>
 
 
@@ -44,7 +44,7 @@
        <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398"
     </td>
     <td>
-      <img width="1184" height="203" alt="image" src="https://github.com/user-attachments/assets/f3c5cca1-9a33-43dd-8dac-f8527fbf252e" />  />
+      <img width="1184" height="203" alt="image" src="https://github.com/user-attachments/assets/f3c5cca1-9a33-43dd-8dac-f8527fbf252e" /> 
     </td>
   </tr>
   <tr>
