@@ -30,7 +30,9 @@ don't be scared to talk w/ me! I'm a sweet person!!
   я хоть и не имею тг (этим летом скачаю), я все еще могу увидеть, что мой скин слили. поэтому, не копируйте скины пожалуйста, или не сливайте в тт, пинтерест, тгк и т.д. обзывание без причины, закрывание скина своим же или чатом и прочее могут быть предом - кофликт - хайд/блок.
 <p align="center">
   если хотите узнать фандом по моему скину, напишите либо в лс, либо подойдите (если не афк), и спросите у меня. Хотите туторы на такие скины, как у меня? не бойтесь, я не буду отказывать, просто попросите <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" />
- правильно <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" />.INT люди по моим фд !!! пожалуйста!
+ правильно <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" />. INT люди по моим фд !
+ 
+ <img width="5410" height="2671" alt="ooooh" src="https://github.com/user-attachments/assets/bafd893c-a0a6-410f-afe5-0ecccbe39161" />
 
  **знаюсь в фандомах как:**
  
