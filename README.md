@@ -1,5 +1,7 @@
 <p align="center">
- <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/aee481e4-dbdc-41f0-8950-9b318add32a8" />
+ 
+<img width="1500" height="400" alt="omgg" src="https://github.com/user-attachments/assets/603ee79b-7f85-4f65-93bd-ecb7991513c5" />
+
 <div align="center">
   
   # _~Welcome!~_
@@ -44,9 +46,22 @@ don't be scared to talk w/ me! I'm a sweet person!!
 
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
 
-
- <img width="1184" height="203" alt="image" src="https://github.com/user-attachments/assets/f3c5cca1-9a33-43dd-8dac-f8527fbf252e" /> <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398" />  <img width="656" height="356" alt="image" src="https://github.com/user-attachments/assets/6bd60946-a800-4dab-9da9-a34d25996141" />
-  <p align="center"> 
 <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />   мне точно нужно пересмотреть 2 акт, а то совсем не понял, лол.<img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
-<p align="center">
+
+<table>
+  <tr>
+    <td rowspan="2">
+       <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398"
+    </td>
+    <td>
+      <img width="1184" height="203" alt="image" src="https://github.com/user-attachments/assets/f3c5cca1-9a33-43dd-8dac-f8527fbf252e" />  />
+    </td>
+  </tr>
+  <tr>
+    <td>
+      <img width="656" height="356" alt="image" src="https://github.com/user-attachments/assets/6bd60946-a800-4dab-9da9-a34d25996141" />
+    </td>
+  </tr>
+</table>
+   
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
