@@ -1,10 +1,6 @@
-<p align="center">
- 
-<img width="1500" height="400" alt="omgg" src="https://github.com/user-attachments/assets/603ee79b-7f85-4f65-93bd-ecb7991513c5" />
-
 <div align="center">
   
-  # _~Welcome!~_
+  # 𝖂𝖊𝖑𝖈𝖔𝖒𝖊!
 
 <p align="center">
 <img width="1200" height="170" alt="аааааааааааааааааааа" src="https://github.com/user-attachments/assets/3c749083-04d8-4c38-91a9-cecb44de0b9a" />
