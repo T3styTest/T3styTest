@@ -40,7 +40,7 @@ don't be scared to talk w/ me! I'm a sweet person!!
 <p align="center">
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
 <p align="center">
-<img width="366" height="75" alt="image" src="https://github.com/user-attachments/assets/841906bc-e1f4-4117-9d9a-89a74dea86e6" />
+ <img width="1184" height="203" alt="image" src="https://github.com/user-attachments/assets/f3c5cca1-9a33-43dd-8dac-f8527fbf252e" />
 <p align="center">
  <img width="327" height="462" alt="authorgif" src="https://github.com/user-attachments/assets/3c51e20b-3ec6-4174-9389-e0b9e906f398" /> 
  <p align="center"> 
