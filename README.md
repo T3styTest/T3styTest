@@ -26,14 +26,14 @@ don't be scared to talk w/ me! I'm a sweet person!!
 <p align="center">
   от 17:00 к 22:00/23:00 я могу сидеть сам, поэтому не упусти шанс подойти ко мне! ведь в другое время я могу сидеть со своим партнером и другими друзьями. Не подходите/в лс, если я сижу с кем-то, кто есть моим другом.
 <p align="center">
-  я хоть и не имею тг (этим летом скачаю), я все еще могу увидеть, что мой скин слили. поэтому, не копируйте скины пожалуйста, или не сливайте в тт, пинтерест, тгк и т.д. обзывание без причины, закрывание скина своим или чатом и прочее могут быть предом - кофликт - хайд/блок.
+  я хоть и не имею тг (этим летом скачаю), я все еще могу увидеть, что мой скин слили. поэтому, не копируйте скины пожалуйста, или не сливайте в тт, пинтерест, тгк и т.д. обзывание без причины, закрывание скина своим же или чатом и прочее могут быть предом - кофликт - хайд/блок.
 <p align="center">
   если хотите узнать фандом по моему скину, напишите либо в лс, либо подойдите (если не афк), и спросите у меня. Хотите туторы на такие скины, как у меня? не бойтесь, я не буду отказывать, просто попросите <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" />
  правильно <img width="20" height="20" alt="в" src="https://github.com/user-attachments/assets/41f1dd23-8e8a-4b11-b5ce-427d0937000b" />.INT люди по моим фд !!! пожалуйста!
 
  **знаюсь в фандомах как:**
  
- <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC ARG:SFAWTDE/DAWTDE. Collinlock16( in process watching ). TBOTV/TLPA. Judemines2006. Unstable Universe(abit of Lifesteal SMP). A ReGect. дело _Def1ne, "Am I Alone?");
+ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC ARG:SFAWTDE/DAWTDE. Collinlock16( in process watching ). TBOTV/TLPA. Judemines2006. Unstable Universe(abit of Lifesteal SMP). A ReGect. дело _Def1ne, "Am I Alone?";
  
 остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm (?), Vocaloid, Sprunki, Solarballs, Countryhumans (?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken (?), иии... ох, забыл, извините XD<img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
 </p>
