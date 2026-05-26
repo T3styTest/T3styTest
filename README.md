@@ -10,15 +10,9 @@
 <img width="1200" height="170" alt="аааааааааааааааааааа" src="https://github.com/user-attachments/assets/3c749083-04d8-4c38-91a9-cecb44de0b9a" />
 
 <p align="center">
-you can call me Testy/test.
-<p align="center">
-he/him prn pls.
-<p align="center">
-ru / eng
-<p align="center">
-c+h/int, but if I'm with my friends, dniuf.
-<p align="center">
-don't be scared to talk w/ me! I'm a sweet person!!
+РУ МУЛЬТИФАНДОМЕР. c+h ТОЛЬКО если сижу сам. w2i. CD DNC.
+
+  
 <p align="center">
  <img width="344" height="40" alt="image" src="https://github.com/user-attachments/assets/22dfaf6d-bff0-4f79-bc00-a36a71946f9a" />
 <p align="center">
