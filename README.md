@@ -36,6 +36,7 @@
   </tr>
 </table>
 
+<p align="center">
 страшный фанат шипа giftedtoy.🤞<img width="150" height="106" alt="17807384094952914771487629519646" src="https://github.com/user-attachments/assets/0fad1670-45db-41be-9b14-08d01665aae9" />
 
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
