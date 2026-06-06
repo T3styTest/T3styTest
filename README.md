@@ -1,5 +1,5 @@
 <div align="center">
-   <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" /> ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊!♣︎ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
+<img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" /> ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊!♣︎ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
 
 <p align="center">
 РУ МУЛЬТИФАНДОМЕР. c+h ТОЛЬКО если сижу сам. w2i. CD DNC.
