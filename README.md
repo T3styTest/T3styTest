@@ -1,7 +1,8 @@
 <img width="1280" height="92" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
 
 <p align="center">
-<h2><img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" /> ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊!♣︎ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" /></h2>
+★𝖂𝖊𝖑𝖈𝖔𝖒𝖊
+<p align="center">
 РУ МУЛЬТИФАНДОМЕР. c+h ТОЛЬКО если сижу сам. w2i. CD DNC.
 <img width="1024" height="576" alt="17807379956548075614975374586165" src="https://github.com/user-attachments/assets/b9e4f313-b03f-44ba-8c6c-d1ca99f7ed7c" />
 
