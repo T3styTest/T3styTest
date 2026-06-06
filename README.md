@@ -1,4 +1,4 @@
-1st<div align="center">
+11st<div align="center">
 
   
   <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" /> ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊!♣︎ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
@@ -37,6 +37,6 @@
   </tr>
 </table>
 
-<img width="800" height="706" alt="17807384094952914771487629519646" src="https://github.com/user-attachments/assets/0fad1670-45db-41be-9b14-08d01665aae9" />
+страшный фанат шипа giftedtoy.🤞<img width="200" height="106" alt="17807384094952914771487629519646" src="https://github.com/user-attachments/assets/0fad1670-45db-41be-9b14-08d01665aae9" />
 
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
