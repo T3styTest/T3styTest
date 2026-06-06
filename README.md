@@ -1,4 +1,4 @@
-<div align="center">
+1st<div align="center">
 
   
   <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" /> ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊!♣︎ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
@@ -26,10 +26,9 @@
       <img width="523" height="382" alt="17807381280041522978733744012133" src="https://github.com/user-attachments/assets/a10fd643-6742-4aee-ad2c-1bc6751b2c8f" />
     </td>
     <td width="50%" align="center">
-      <h2>Текст</h2>
+      <h2>фандомы:</h2>
       <p>
-        **знаюсь в фандомах как:**
- 
+       
  <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC: SFAWTDE/DAWTDE. Collinlock16( в процессе просмотра ). TBOTV/TLPA. Judemines2006(ужасы пустого сервера). Unstable Universe(немного Lifesteal SMP). A ReGect. дело _Def1ne;
  
 остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm(?), Vocaloid(?), Sprunki, Solarballs, Countryhumans(?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken(?), bunnycat songs и больше! <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
