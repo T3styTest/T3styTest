@@ -3,8 +3,7 @@
 <p align="center">
 ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊
 <p align="center">
-РУ МУЛЬТИФАНДОМЕР. c+h ТОЛЬКО если сижу сам. w2i. CD DNC.
-<img width="1024" height="576" alt="17807379956548075614975374586165" src="https://github.com/user-attachments/assets/b9e4f313-b03f-44ba-8c6c-d1ca99f7ed7c" />
+<img width="679" height="281" alt="17820353833193634062850441037841" src="https://github.com/user-attachments/assets/e79e824c-eb19-4a03-9213-eb9ca7276951" />
 
 Ну здраствуй, друг! меня можно звать как тести, так и тест.!Я НЕ ТЕСТО/ТОСТЕР! пожалуйста, не называйте меня так, иначе могу плохо к вам начать относиться. я не кусаюсь, поэтому если я сижу сам + не афк - подходите, я не против поговорить!
 
@@ -22,7 +21,7 @@
       <img width="680" height="608" alt="17820348696723243800889168394698" src="https://github.com/user-attachments/assets/ac0dc814-33a2-406f-a840-2a09c4471aa2" />
     </td>
     <td width="50%" align="center">
-      <h2>[INT мои фд]фандомы:</h2>
+      <h2>фандомы:</h2>
       <p>
        
  <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC: SFAWTDE/DAWTDE. SIKAYD/SIYH. Unstable Universe(?). A ReGect.;(добавлю больше как вспомню)
