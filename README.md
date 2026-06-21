@@ -37,5 +37,6 @@
 
 <p align="center">
 !ВСЕ АРТЫ НЕ МОИ! 
-
+  
+<p align="center">
 Авторы артов(TWITTER/X): @ksiin4eg , @Krozilis и другие,у которых я взял арты! 
