@@ -33,3 +33,8 @@
 </table>
 
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
+
+
+!ВСЕ АРТЫ НЕ МОИ! 
+
+Авторы артов(TWITTER/X): @ksiin4eg , @Krozilis и другие,у которых я взял арты! 
