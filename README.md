@@ -4,7 +4,8 @@
 ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊
 <p align="center">
 <img width="679" height="281" alt="17820353833193634062850441037841" src="https://github.com/user-attachments/assets/e79e824c-eb19-4a03-9213-eb9ca7276951" />
-
+  
+<p align="center">
 Ну здраствуй, друг! меня можно звать как тести, так и тест.!Я НЕ ТЕСТО/ТОСТЕР! пожалуйста, не называйте меня так, иначе могу плохо к вам начать относиться. я не кусаюсь, поэтому если я сижу сам + не афк - подходите, я не против поговорить!
 
 <p align="center">
@@ -34,7 +35,7 @@
 
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
 
-
+<p align="center">
 !ВСЕ АРТЫ НЕ МОИ! 
 
 Авторы артов(TWITTER/X): @ksiin4eg , @Krozilis и другие,у которых я взял арты! 
