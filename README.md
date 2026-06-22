@@ -25,7 +25,7 @@
       <h2>фандомы:</h2>
       <p>
        
- <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC: SFAWTDE/DAWTDE. SIKAYD/SIYH. Unstable Universe(?). A ReGect.;(добавлю больше как вспомню)
+ <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />MC: SFAWTDE/DAWTDE. TBoTV/TLPA. SIKAYD/SIYH. Unstable Universe(?). A ReGect.;(добавлю больше как вспомню)
  
 остальные: Rodamrix, Fnf Vs Imp V4, AvA/Avm(?), Vocaloid(?), Sprunki, Solarballs, Countryhumans(?), HTTYD, LHG(Let Him Go), Kotiynet, TBS(The Broken Script), Forsaken(?), bunnycat songs и больше! <img width="19" height="23" alt="dsfdsfds" src="https://github.com/user-attachments/assets/c344046f-67c3-45bf-950d-e606cc35d874" />
 </p>
