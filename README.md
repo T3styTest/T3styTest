@@ -36,6 +36,7 @@ others: Rodamrix, Fnf Vs Imp V4,AvA/Avm(?),Vocaloid(?),Sprunki, Solarballs,Count
   </tr>
 </table>
 
+<p align="center">
 $\color{red}{\text{DNI: darkshippers, proshippers, Pick me.}}$
 
 <img width="480" height="310" alt="17826569292958351178855664489942" src="https://github.com/user-attachments/assets/5ba68aec-6961-464f-8633-dec58ea41f0b" />
