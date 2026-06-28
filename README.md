@@ -1,4 +1,4 @@
-8<p align="center">
+<p align="center">
 ✺
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=8bit+code&duration=3000&pause=10&color=FF4747C4&multiline=true&width=435&height=210&lines=Jump+into+the+void.+;Jump+in+it.;It%E2%80%99s+not+dangerous+anymore.+;Just+jump.;It+wont+damage+you.+;It's+all+safe.;It's+all+clean." alt="Typing SVG" /></a>
