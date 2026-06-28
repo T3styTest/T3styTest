@@ -14,6 +14,7 @@
   <p align="center">
   я хоть и не имею тг (этим летом скачаю), я все еще могу увидеть, что мой скин слили. поэтому, не копируйте скины пожалуйста, или не сливайте в тт, пинтерест, тгк и т.д. обзывание без причины, закрывание скина своим же или чатом и прочее могут перейти с преда в кофликт, и позже хайд/блок
  
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=8bit+code&pause=1000&color=F7E5D0&background=141111&center=true&width=435&lines=By+the+way+the+void+is+cleansed;You+should+check+around;It+doesnt+damage+you+anymore;You+should+jump+in" alt="Typing SVG" /></a>
  
 <table>
   <tr>
