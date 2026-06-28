@@ -1,8 +1,8 @@
 <p align="center">
-<img width="210" height="90" alt="17826731756404139696177872115049" src="https://github.com/user-attachments/assets/97a6c0f1-7ccd-4c32-82c9-310960aa9c19" />
-
-<p align="center">
 ✺
+  
+<p align="center">
+<img width="210" height="90" alt="17826731756404139696177872115049" src="https://github.com/user-attachments/assets/97a6c0f1-7ccd-4c32-82c9-310960aa9c19" />
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=8bit+code&duration=3000&pause=10&color=FF4747C4&multiline=true&width=435&height=210&lines=Jump+into+the+void.+;Jump+in+it.;It%E2%80%99s+not+dangerous+anymore.+;Just+jump.;It+wont+damage+you.+;It's+all+safe.;It's+all+clean." alt="Typing SVG" /></a>
 <p align="center">
