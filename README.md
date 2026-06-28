@@ -3,9 +3,8 @@
 <p align="center">
 ★𝖂𝖊𝖑𝖈𝖔𝖒𝖊
 <p align="center">
-<img width="680" height="299" alt="17821464389535318860648791617648" src="https://github.com/user-attachments/assets/69c7bd8c-33c5-4ae0-ab79-0ad9194a9d4d" />
+<img width="360" height="191" alt="17826571729453234199255909476703" src="https://github.com/user-attachments/assets/7ddbef5c-8f2b-4926-b45e-dd75180c5dea" />
 
-  <p align="center">
 Ну здраствуй, друг! меня можно звать как тести, так и тест.!Я НЕ ТЕСТО/ТОСТЕР! пожалуйста, не называйте меня так, иначе могу плохо к вам начать относиться. я не кусаюсь, поэтому если я сижу сам + не афк - подходите, я не против поговорить!
   <p align="center">
   новые друзья? хмм, не уверен, ведь я только вечером не буду сидеть с моим партнером. и он не очень любит сидеть с тем, с кем он не знаком, а он не очень любит находить новых обществ. если я вам не нравлюсь, скажите это, я не буду обзывать, оскорблять или обижаться, а правильно все пойму! DNI Кланы, рекламы и т.д.
@@ -15,11 +14,10 @@
   я хоть и не имею тг (этим летом скачаю), я все еще могу увидеть, что мой скин слили. поэтому, не копируйте скины пожалуйста, или не сливайте в тт, пинтерест, тгк и т.д. обзывание без причины, закрывание скина своим же или чатом и прочее могут перейти с преда в кофликт, и позже хайд/блок
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=8bit+code&pause=1000&color=F7E5D0&background=141111&center=true&width=435&lines=By+the+way+the+void+is+cleansed;You+should+check+around;It+doesnt+damage+you+anymore;You+should+jump+in" alt="Typing SVG" /></a>
+
  
 <table>
   <tr>
-    <td width="50%" align="center">
-      <img width="380" height="461" alt="image" src="https://github.com/user-attachments/assets/9e58432b-2e35-4987-aeb0-dfe5490de4a9" />
     </td>
     <td width="50%" align="center">
       <h2>фандомы:</h2>
@@ -32,5 +30,7 @@
     </td>
   </tr>
 </table>
+
+<img width="480" height="310" alt="17826569292958351178855664489942" src="https://github.com/user-attachments/assets/5ba68aec-6961-464f-8633-dec58ea41f0b" />
 
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/44d22100-3be3-4e26-bedd-1facfbac2c7c" />
