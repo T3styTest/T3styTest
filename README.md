@@ -14,7 +14,7 @@
 $\color{#958d82}{\text{a fucking TBoTV / TLPA fan.}}$
 
 <p align="center">
-  $\color{#5a747b}{\text{✺, Mark101, ⊮  Fictionalkin.}}$
+  $\color{#5a747b}{\text{✺, Mark101, ⊮, ꕚ  Fictionalkin.}}$
   <p align="center">
     $\color{#26385c}{\text{c+h only if I'm alone, don't need 2 ask.}}$
     <p align="center">
